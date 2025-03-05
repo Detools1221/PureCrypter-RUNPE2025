@@ -1,5 +1,9 @@
 Morpher stub
 
+СКАЧАТЬ МОЖНО В РАЗДЕЛЕ "РЕЛИЗЫ" КЛИК
+
+YOU CAN DOWNLOAD IT IN THE "RELEASES" SECTION CLICK
+
 PureCrypter - BEST 2025 MARTH MALWARE CRYPTOR (RUNPE INJECT METOD)
 
 PureCrypter -  Лучший Криптор Малвари на Март 2025 года (Использует метод RUNPE)
